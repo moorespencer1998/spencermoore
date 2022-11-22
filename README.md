@@ -1,3 +1,0 @@
-# spencermoore
-# spencermoore
-# spencermoore
